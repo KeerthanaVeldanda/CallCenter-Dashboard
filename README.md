@@ -47,4 +47,4 @@ This dashboard presents an interactive summary of call center activity for the y
 ## 📬 Contact Me
 
 I’m open to freelance work and collaborations.  
-🔗 
+🔗 https://www.linkedin.com/in/veldanda-keerthana-496b9834a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
